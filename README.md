@@ -1,1 +1,1 @@
-# Computacao_visual_7N
+# Computacao_visual_7G
